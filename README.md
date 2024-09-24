@@ -1,2 +1,2 @@
 # project-1
-Nama : Dinathan Fahrezi NIM 050 Nama Tugas :
+Nama : Dinathan Fahrezi NIM 2409116050 Nama Tugas :
